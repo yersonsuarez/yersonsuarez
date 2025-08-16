@@ -8,7 +8,7 @@ Me caracterizo por el interés en el aprendizaje continuo, la responsabilidad en
 ---
 
 ## Formación Académica
-- **Tecnología en Sistemas**
+- **Tecnología en Sistemas** (actual)
 - **Técnico en Sistemas** 
 
 ---
